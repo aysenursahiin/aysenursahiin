@@ -22,4 +22,4 @@ I'm Ayşenur — a digital artist who loves blending creativity with interactive
 
 ✨ I'm always open to new projects, creative collaborations, or just a friendly hello!
 
-📬 Contact me: [LinkedIn]([#](https://www.linkedin.com/in/aysenursahiin/)) | [Email]([#](z.aysenursahin@gmail.com)
+📬 Contact me: Email z.aysenursahin@gmail.com
